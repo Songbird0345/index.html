@@ -1,1 +1,1 @@
-<h1>Amanda's Strong's First Collab</h1>
+<h1>Amanda Strong's First Collab</h1>
